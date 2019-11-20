@@ -1,0 +1,2 @@
+## Matriz Curricular
+Atualmente, existem duas matrizes curriculares em execução no curso. A primeira matriz teve início no ano de 2016 e está sendo executada pelos acadêmicos que ingressaram nos anos 2016 e 2017. A segunda matriz, fruto de uma reestruturação que visa executar um curso de maior qualidade, teve início em 2018. Esta matriz será executada pelos acadêmicos que ingressaram no ano de 2018 ou anos posteriores.
